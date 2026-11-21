@@ -11,7 +11,6 @@ I had the map: the bridge was gone.
 I said north, but cross at the ford.
 You said yes.
 
-No one had told us to go there.
 It was the first place
 either of us had gone
 without being sent.
